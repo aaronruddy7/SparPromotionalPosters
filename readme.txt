@@ -1,0 +1,1 @@
+This repository contains promotional materials I created for a Spar retail shop. It includes videos designed for display on a TV screen above the hot food counter, as well as images intended for social media campaigns. These assets were used to enhance in-store marketing and engage customers online.
